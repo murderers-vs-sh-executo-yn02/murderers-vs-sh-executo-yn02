@@ -1,4 +1,4 @@
-
+Get Free rare Scripts for rivals - spd and tele and enjoy free, premium-quality scripts for rivals! Our spd and tele features are designed to give you the upper hand, without breaking the bank. Join a community of winners who rely on Free rare Scripts for rivals - spd and tele for their daily dose of success.
 
 
 ---
